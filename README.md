@@ -1,6 +1,4 @@
-      » モドルノキオク - とろ美 «
- 0:00 ─〇───── 0:00
-     ⇄   ◃◃   ⅠⅠ   ▹▹   ↻
+idk wip woof
 <!--
 **toontaku/toontaku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
